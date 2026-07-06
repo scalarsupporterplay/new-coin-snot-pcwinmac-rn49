@@ -1,4 +1,4 @@
-# 
+# Exclusive new coin sniper bot plugins for Mac OS | Professional new coin sniper bot plugins for PC Windows. Featuring event listeners and profit calculation — optimized for maximum performance on every platform.
 
 
 
